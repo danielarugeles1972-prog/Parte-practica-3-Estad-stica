@@ -1,1 +1,0 @@
-# Parte-practica-3-Estad-stica
